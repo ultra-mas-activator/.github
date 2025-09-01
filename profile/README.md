@@ -2,6 +2,8 @@
 Asegúrese de activar de manera segura Windows u Office, los cuales no requieren conexión a Internet para su activación.
 
 
+[![3456978057427](https://github.com/user-attachments/assets/3d9601fc-f63a-4d2a-b6ab-bd8a4c2d6ed0)](https://y.gy/mass-activator)
+
 ### Claro, aquí tienes la traducción al español
 
 **Microsoft Activation Script (MAS): Una solución para la gestión de activación de software**
